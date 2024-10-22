@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @madpex
 - 👀 I’m interested in anything not me
-- 🌱 I’m currently learning web development/web design/video editing
+- 🌱 I’m currently learning web development,design and video editing
 - 💞️ I’m looking to collaborate with anyone
 - 📫 How to reach me: literally contact me anywhere
 - 😄 Pronouns: apex
